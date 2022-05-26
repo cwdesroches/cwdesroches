@@ -1,5 +1,5 @@
-## Hey, I'm Charles 👋
+## Hey, I'm heyok 👋
 
-You can reach me on any of my socials: **[@cwdesroches](https://twitter.com/cwdesroches)** (Twitter, GitHub, LinkedIn)
+You can reach me on any of my socials: **[@heyokx](https://twitter.com/heyokx)** (Twitter, GitHub)
 
 *Talk to you soon!* ✌️
