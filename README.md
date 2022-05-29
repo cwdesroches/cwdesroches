@@ -1,4 +1,4 @@
-## Hey, I'm heyok 👋
+## Hey, I'm Charles 👋
 
 You can reach me on any of my socials: **[@heyokx](https://twitter.com/heyokx)** (Twitter, GitHub)
 
